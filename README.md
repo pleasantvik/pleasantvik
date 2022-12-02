@@ -15,3 +15,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He
 - ⚡ Fun fact: I'm literally quiet until you become friends with me
 -->
+
+
+[twitter][twitter] **|** 
+[twitter]: https://twitter.com/pleasantvik
