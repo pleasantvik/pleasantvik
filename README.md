@@ -9,7 +9,8 @@
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with how to contribute on open source
 - 💬 Ask me about Reactjs, Javascript, Frontend development
-- 📫 How to reach me: https://twitter.com/pleasantvik 
+- 📫 How to reach me: adedayo.ayoola5683@gmail.com 
+- 📫 X: https://twitter.com/pleasantvik 
 - 😄 Pronouns: He
 - ⚡ Fun fact: I'm literally quiet until you become friends with me
 
